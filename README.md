@@ -1,6 +1,6 @@
 # reading_list 阅读书单
-#### 这是我正在阅读与已经阅读了的书籍，做一个记录。 
-#### Just to record what I am currently reading and what I have read.
+#### 除了编程，我也喜欢读一些乱七八糟的东西。。。 这是我正在阅读与已经阅读了的书籍，做一个记录。  
+#### Apart from coding, I'd love to wonder around in the chaos of bookies(: Just to record what I am currently reading and what I have read.
 
 ### 正在读的 Read-ing
 
