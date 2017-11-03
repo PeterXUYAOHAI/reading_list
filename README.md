@@ -30,27 +30,30 @@
 《腾讯传》 Tencent biography？  
 《海底捞你学不会》   
 《人类群星闪耀时》 Decisive Moments in History by Stefan Zweig    
-《1988，我想和这个世界谈谈》  
-《富甲美国-沃尔玛创始人自传》 Sam Walton: Made in America  
-《乌合之众》 The Crowd:A Study of the Popular Mind  
+《1988，我想和这个世界谈谈》   
+《富甲美国-沃尔玛创始人自传》 Sam Walton: Made in America   
+《乌合之众》 The Crowd:A Study of the Popular Mind   
 《解忧杂货店》  
-《爱你就像爱生命》（王小波）  
-《巨婴国》  
-《将心注入-星巴克创始人》 Pour Your Heart into It by Howard Schultz  
-《倾城之恋》（张爱玲）  
-《不能承受的生命之轻》 The Unbearable Lightness of Being  
-《北京折叠》
-《数学之美》 （吴刚）
-《激荡三十年》 （吴晓波）
-《公正》 Justice Whats the Right Thing to Do by Michael J. Sandel   
-《苏菲的世界》 Sophie's World by Jostein Gaarder
-《无政府，国家和乌托邦》 Anarchy, State, and Utopia by Robert Nozick  
-《许三观卖血记》
-《活着》
-《女神一号》（冯唐）
+《爱你就像爱生命》（王小波）   
+《巨婴国》   
+《将心注入-星巴克创始人》 Pour Your Heart into It by Howard Schultz   
+《倾城之恋》（张爱玲）   
+《不能承受的生命之轻》 The Unbearable Lightness of Being   
+《北京折叠》 
+《数学之美》 （吴刚） 
+《激荡三十年》 （吴晓波） 
+《公正》 Justice Whats the Right Thing to Do by Michael J. Sandel    
+《苏菲的世界》 Sophie's World by Jostein Gaarder  
+《无政府，国家和乌托邦》 Anarchy, State, and Utopia by Robert Nozick   
+《许三观卖血记》 
+《活着》  
+《女神一号》（冯唐）  
 《男人来自火星，女人来自金星》 Men Are from Mars, Women Are from Venus  
-《飞鸟集》 （冯唐 译） Stray Birds translate by Feng Tang
-《中国街头骗术大全》
+《飞鸟集》 （冯唐 译） Stray Birds translate by Feng Tang  
+《中国街头骗术大全》    
+《你今天真好看》 The Little World of Liz Climo    
+《浪潮之巅》  
+
  
  
 
