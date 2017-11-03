@@ -20,7 +20,7 @@
 
 ### 已读完的 Done
 《富爸爸， 穷爸爸》 Rich Dad, Poor Dad  
-《医生的精进》 Better by Atul Gawande  
+《医生的精进》 Better by Atul Gawande    
 《十亿消费者》 One Billion Customers  
 《牧羊少年奇幻之旅》The Alchemist  
 《深夜食堂卷五四三二一》  
