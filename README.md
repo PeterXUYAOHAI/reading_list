@@ -39,7 +39,7 @@
 《将心注入-星巴克创始人》 Pour Your Heart into It by Howard Schultz   
 《倾城之恋》（张爱玲）   
 《不能承受的生命之轻》 The Unbearable Lightness of Being   
-《北京折叠》 
+《北京折叠》    
 《数学之美》 （吴刚）   
 《激荡三十年》 （吴晓波）   
 《公正》 Justice Whats the Right Thing to Do by Michael J. Sandel    
