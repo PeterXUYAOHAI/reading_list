@@ -10,13 +10,13 @@
 《猫城记》   
 《深夜食堂卷6》  
 《阿城作品集》  
-《引爆点》 Tipping Point  
 《枪炮，病菌与钢铁》 Guns, Germs and Steel: The Fates of Human Societies  
 《万历十五年》 1587, a Year of No Significance: The Ming Dynasty in Decline  
 《程序员的自我修养-链接，装载与库》   
 《人月神话》 The Mythical Man-Month   
 
 ### 已读完的 Done
+《引爆点》 Tipping Point    
 《上瘾五百年》 Forces of Habit     
 《富爸爸， 穷爸爸》 Rich Dad, Poor Dad  
 《医生的精进》 Better by Atul Gawande    
